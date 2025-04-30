@@ -2,7 +2,7 @@
 -  I’m interested in Web Development, Game Development and Cyber Security.
 -  I’m currently doing UG in Computer Scicence.
 -  I’m looking for an Internship...
--  Reach out by Mail@ v.sathish2k4@gmail.com
+-  Reach out by Mail@ leosat2k4@gmail.com
 -  Pronouns: He / Him
 -  Fun fact: There is no END for learning
 
