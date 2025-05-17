@@ -1,5 +1,5 @@
 -  Hello, I’m Santhosh.
--  I’m interested in Web Development, Game Development and Cyber Security.
+-  I’m interested in Web Development, Game Development 
 -  I’m currently doing UG in Computer Scicence.
 -  I’m looking for an Internship...
 -  Reach out by Mail@ leosat2k4@gmail.com
